@@ -58,4 +58,8 @@ Pakistani.
 
 Georgians and Armenians were Christian; Azers muslim.
  
-The construction of Georgian Military Road has disturbed the wild Khakasians! Run!
+The construction of Georgian Military Road has disturbed the wild Caucasians! Jihad began. Alahu akbar!
+
+Shamil (1797-1871).
+
+Guerilla war for 25 years, tens of thousands of soldiers lost, up to 1/6 of state income.
