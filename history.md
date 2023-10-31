@@ -63,3 +63,58 @@ The construction of Georgian Military Road has disturbed the wild Caucasians! Ji
 Shamil (1797-1871).
 
 Guerilla war for 25 years, tens of thousands of soldiers lost, up to 1/6 of state income.
+
+## The Kazakh steppe
+Between Southern Ural and the Caspian sea.  
+Nomadic & tribal Kazakhs. In XV split off from khanate of the Uzbeks, formed three Hordes: Young Horde, Middle Horde and Large/Older Horde.  
+Khans + clan aristocracy of sultans and begs.
+
+Opponents are Mongols (Oirats). In the beginning of XVIII Kazakhs were harassed by Orats, so they asked Russia for help.  
+Between 1731 and 1742 Lil' and Mid Hordes swore allegiance to the tsar. Not part of Empire yet.
+
+Incorporation occured in the first half of XIX. Intrtnal crisis in the Hordes, rebellion against Russia.
+
+Administrative units: Orenburg, Siberian and Semipalatinsk.
+
+The area south to Syr-Darya were added to Turkestan.
+
+In 1891 special statute confirmed Kazakh status. Begs were not incorporated though
+
+## Middle Asia
+Intensive arable farming + trade. Silk Road. Urban population bilingual, tribal identity and religion more important thean ethnicity and language.
+
+- Emirate of Bukhare
+- Khanate of Khiva
+- Khanate of Kokand
+
+Russia maintained trade links with Islamic centres since XVI.
+
+The conquest began in 1864
+
+Colonel Cherniaev and 2600 men conquered Tashkent.  
+von Kaufman  
+General Skobelev  
+In early 1860s Civil war in USA led to lack of cotton. Russia started looking around for alternative suppliers. Middle Asia could become a new market.
+
+After defeat in Crimea Russian war effort concentrated on Middle Asia.  
+Bukhara and Khiva became protectorates and remained independent. Islam still reigned.  
+Status quo was largely preserved.  
+New asian colonies were supposed to support Russian economy. Asian cotton was transported by a railway.  
+Russian presense was limited.
+
+*all'y, cott'on ffs*
+
+Russian Empire technicaly didn't have colonies, but excercised colonial policies on multiple regions
+
+Nicholas I was scared of national and revolutionary movements in Europe.  
+Wanted to build a strong state, started repressions.
+
+## Poland - forced integration after 1863
+1863 Polish uprising
+400 rebels executed, 20000 deported to Siberia. 2500 estates confiscated from Polish nobles
+Poland --> Privislinski krai. Official language Russian. Judiciary Russian. Repressions of Catholic church, monasteries closed, property secularized.
+
+Ban on Lithuanian, Belorussian and Ukraininan languages.  
+Led to developement of Ukrainian national movements  
+Forced conversion to orthodox  
+Administrative pressure on the Baltic provinces  
