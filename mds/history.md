@@ -118,3 +118,36 @@ Ban on Lithuanian, Belorussian and Ukraininan languages.
 Led to developement of Ukrainian national movements  
 Forced conversion to orthodox  
 Administrative pressure on the Baltic provinces  
+
+Theory of Checzh (?) historian Miloslav Przhzezhizhchko  
+Phase A: Small educated group develops an interest in language & folklore of an ethnicity  
+Phase B: Cultural awakening. Agitation among the masses, patriots trying to instill national conciousness and build an ethnic community.  
+Phase C: Mass movement. Ethnic group seeks political autonomy
+
+In 20th century national movements started striving for political independence.  
+
+Less than half of RE population was ethnically Russian (43% in 1880s). 67% Slavic.
+
+Копеллер
+### Old ethnic groups
+Have experienced independence throughout their respective history. More educated.  
+Finns, Poles, Georgians, Ukrainians to an extent.  
+Poles: past phase A in late 18th - early 19th  
+Finns: also high autonomy
+
+
+Muslims and all kind of Tatars were not included in this groups
+
+Taras Shevchenko
+
+### Old ethnic groups
+Whatever
+
+## The Jews 
+Assassination of A-II in march 1881. Anti-jewish riots  
+Conspiracy: organized by state. Probably not, but did little to stop them.  
+Mass exile of jews from RE (1 million?)
+
+Smaller ethnicities active during revolution
+
+PA Stolypin tried to continue reforms
