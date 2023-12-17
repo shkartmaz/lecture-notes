@@ -1,0 +1,24 @@
+<deck name="Бораты-тест">
+<fields>
+	<text name = "Front" sides='11'></text>
+	<markdown name="Back" sides='01'></markdown>
+</fields>
+<cards>
+<card>
+	<field name="Back">
+		<markdown>M^2+^Fe^3+^(BO~3~)O~2~</markdown>
+	</field>
+	<field name="Front">
+		людвигит
+	</field>
+</card>
+<card>
+	<field name="Back">
+		<markdown>Mg~3~[B~7~O~13~]Cl</markdown>
+	</field>
+	<field name="Front">
+		борацит
+	</field>
+</card>
+</cards>
+</deck>

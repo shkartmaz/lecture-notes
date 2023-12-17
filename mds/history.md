@@ -151,3 +151,61 @@ Mass exile of jews from RE (1 million?)
 Smaller ethnicities active during revolution
 
 PA Stolypin tried to continue reforms
+
+# Bolsheviks
+Self-determination for every national group
+
+1918 Constituent Assembly  
+Brest-Litovsk Peace Treaty - third of population and 2/3 of industrial potential left. All territories gained since XVII
+
+## USSR as a multiethnic state
+
+Why'd they even win?
+- the whites had a reactionary program including strict national policy 
+- bolsheviks promised social justice
+- were flexible in the face of national demands
+
+# National policy of the Soviet Union
+Bolsheviks strived to gather lands of the late Russian Empire  
+1918 - first constitution
+1921 - 1928 New Economic Policy; liberal national policy   
+1922 - foundation of USSR and first republics
+
+1920s - ideal model of national policy in multiethnic state
+- rise of non-russian scientific and artistic elites
+
+After Lenin's death struggle for power in the communist party.  
+Bukharin, Trotsky, Zinoviev, Kamenev, Stalin  
+Stalin was least popular but held an importal position of party secretary. Had a big influence on young party members.   
+Bukharin supported NEP and agriculture; Stalin rooted for heavy industry.  
+NEP ended  
+1929 - first 5-year plan; goal is to make the country an industrial one.  
+Collectivisation in agriculture.  
+
+New industry in Siberia, Urals, Northen Kazakhstan - regions with mostly native russian population.  
+Collectivisation mostly influenced non-russians.  
+Cotton plantations, single-crop economy in Middle Asia.  
+Many nomadic clans were forced to settle.  
+1932-1924 - requisitioning of grain led to famine in Ukraine and ethnically mixed areas to the north of the Caucasus and on lower Volga, 3 to 7 mil dead
+
+Purges of Ukrainian elites  
+1936-1938 wave of terror in non-russian republics. Political and intellectual elites decimated.  
+By the end of 1930s republics under full central contorl, federalism only on paper. Liberal cultural policy terminated, education unified.
+
+Russian introduced to schools as compulsory, new cyrillic alphabet instead of latin  
+Russians were over-represented in politics, science and arts.
+
+Molotov-Ribbintrop
+
+## Death of Stalin
+Flexible policy till 1972.  
+Then along with general internal policy national policy became repressive as well, until the early 1980s  
+Several purges in Ukraine, Georgia and others.  
+National and anti-jew policy, though never extrmist.  
+
+Population briefly rose and then stagnated again, except for Asians.   
+Russians migrated to Kazakhstan (64% population in 1979), to Estonia and Latvia (~30%)
+
+
+## Deportation during WW2
+2 million people were deported to Asia (mainly Kazakhstan) and used as forced labor. About 30% died
